@@ -1,6 +1,6 @@
 # Dekada-70-English-Chapter-Summaries
 
-English Chapter Summaries for Dekada '70
+English Summaries for Chapters 1-31 for Dekada '70
 
 References:
 (K. Oval, personal communication, 2025)
